@@ -1,4 +1,4 @@
-# 
+# Enhance GarageBand for macOS with best GarageBand for macOS Script | 4K-export + color-correction, the #1 script. Includes 4K-export and color-correction for a smoother and more
 
 
 
